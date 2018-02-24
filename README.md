@@ -9,5 +9,5 @@ This year's theme was 'Reimagining time'.
 ## Preview
 
 ![Creative Preview](http://mp4083.nyuad.im/Screen%20Shot%202018-02-24%20at%208.48.57%20PM.png)
-!(http://mp4083.nyuad.im/Screen%20Shot%202018-02-24%20at%208.48.57%20PM.png)
-!(http://mp4083.nyuad.im/Screen%20Shot%202018-02-24%20at%208.48.57%20PM.png)
+![Creative Preview](http://mp4083.nyuad.im/Screen%20Shot%202018-02-24%20at%208.48.57%20PM.png)
+![Creative Preview](http://mp4083.nyuad.im/Screen%20Shot%202018-02-24%20at%208.48.57%20PM.png)
